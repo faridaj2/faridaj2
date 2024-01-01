@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @faridaj2
 - 👀 I’m interested in Women
-- 🌱 I’m currently learning Git
 - 💞️ I’m looking to collaborate on You All
 - 📫 How to reach me Contact Me on WA
 
